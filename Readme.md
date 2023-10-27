@@ -1,1 +1,1 @@
-I created a super simple event landing wbepage (trying to brush up my knowledger with all of these wbe pages, simple ones)
+I created a super simple event landing wbepage (trying to brush up my knowledge with all of these web pages, simple ones) ☺
