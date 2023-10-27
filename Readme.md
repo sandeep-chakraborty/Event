@@ -1,0 +1,1 @@
+I created a super simple event landing wbepage (trying to brush up my knowledger with all of these wbe pages, simple ones)
